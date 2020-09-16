@@ -1,2 +1,2 @@
 # UCClass
-Class 
+Hey Everyone this id fun! Learning A lot!!!
